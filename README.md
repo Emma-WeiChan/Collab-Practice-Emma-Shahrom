@@ -13,3 +13,10 @@ Below, enjoy the wonderful pictures I took while out in nature.
 
 
 ![Watching the waves crash under a brilliant organge sunset.](https://i.pinimg.com/736x/c3/53/8d/c3538d7ef943e6715e07f841b3525e36.jpg)   
+
+
+## Thank You for Viewing My Gallery
+
+CLick the link below to follow more of my adventures:
+
+Follow My Nature Adventure
